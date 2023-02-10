@@ -1,1 +1,1 @@
-  Sou uma pessoa bastante timida e extrovertida ao mesmo tempo  isso depende muit do lugar e das pesso, gosto muito de ser pelo certo e nao  gosto das coisas pela metade, sou bastente divertido e bem dinamico, me considr uma pessia bem compreesiva .
+  Sou uma pessoa bastante tímida e extrovertida ao mesmo tempo  isso depende muito do lugar e das pessoas, gosto muito de ser pelo certo e não  gosto das coisas pela metade, sou bastente divertido e bem dinamico, me considero uma pessoa bem compreesiva .
